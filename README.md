@@ -1,7 +1,4 @@
 # my_CV_2026
+elias
+s26004617
 
-
-hola a todos este es el segundo cambio :D
-
-
-hola a todos este es el segundo cambio :D  
